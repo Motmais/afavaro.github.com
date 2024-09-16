@@ -13,3 +13,5 @@ Ask your mom what it was like. Because I was always worried for my mom growing u
 Go ahead Alex, ask.
 
 If you care oh so much about DEI.
+
+🤡 🌎 
