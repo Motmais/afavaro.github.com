@@ -1,3 +1,4 @@
+🐒 🐒 🐒 
 Sit down and ask your mom what she had to go through when she got her MBA and started working in a man's world. And her ambitions and potential she forwent when she made the decision to stand behind your father as he pursued a career and she stayed home to keep you, your brother, and your sister safe.
 
 Ask.
